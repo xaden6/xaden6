@@ -22,9 +22,10 @@ i want to try out new things this year so heres my list i guess
 7. steal a shopping cart from the mall (will return it after a day or so, i dont want a lawsuit) ✅
 8. get the adopt me jousting horse (ride pot)
 9. finish reading the bible (galatians 6:7 haha) ✅
-10. find the project hail mary book because for some reason it isnt in Popular or bookxcess
-11. finish my clay projects
-12. eat a burrito for the first time
-13. hack my all of my friend's social media accounts announcing he is gay and f word ✅
-14. survive nate and hope he doesnt send me to kumon mission impossible
-15. check 5 things from the list ✅
+10. make my discord status online for the first time ever ✅
+11. find the project hail mary book because for some reason it isnt in Popular or bookxcess
+12. finish my clay projects
+13. eat a burrito for the first time
+14. hack my all of my friend's social media accounts announcing he is gay and f word ✅
+15. survive nate and hope he doesnt send me to kumon mission impossible
+16. check 5 things from the list ✅
