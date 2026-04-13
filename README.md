@@ -14,7 +14,7 @@ i was first made somewhere around february and published on the 16th of november
    
 i want to try out new things this year so heres my list i guess
 1. pass math
-2. watch house md ✅
+2. watch house md ✅ pirated
 3. watch everybody hates chris
 4. pirate hotline miami again ✅
 5. watch goodnight oppy
