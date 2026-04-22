@@ -1,6 +1,6 @@
 
 hi guys
-you can call me xaden, real name's aiden. he/him, 16-11 (not the american format, they use month before the date.)
+you can call me xaden, real name's aiden. he/him, 16/11 (not the american format, they use month before the date.)
 
 you can usually find me in trees or sitting with my acquaintances and friends
 
