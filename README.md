@@ -7,6 +7,7 @@ you can usually find me in trees or sitting with my acquaintances and friends. a
 
 
 i suck at any pvp and fps game. im also terrible at math never ask me anything math related i will answer incorrectly
+i currently play roblox, codm, blockblast, gacha life2 and pony town.
 
 <img width="170" height="100" alt="image" src="https://github.com/user-attachments/assets/eb98185c-85b6-4ec9-9f54-afd1ff0b4cae" />
 
