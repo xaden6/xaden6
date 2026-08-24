@@ -3,7 +3,7 @@ hi guys
 you can call me xaden, real name's aiden. birthdays 16/11 (not the american format, they use month before the date.)
 <img width="100" alt="gif" src="https://64.media.tumblr.com/6ba95de22ebcdfc5a522d105d35a3d1b/0a6faef86a9aff65-ea/s400x600/5381b752bdc1608ff85fe41d03ca58601c408696.gifv" />
 
-you can usually find me in trees or sitting with my acquaintances and friends. also i have a 30min timelimit on chrome so im not active as much (upd i have access to google on my ipad i can live) <img width="90" height="90" alt="image" src="https://github.com/user-attachments/assets/fee2b969-524f-4682-b1f5-02841e986445" />
+you can usually find me in trees or sitting with my acquaintances and friends. <img width="90" height="90" alt="image" src="https://github.com/user-attachments/assets/fee2b969-524f-4682-b1f5-02841e986445" />
 
 
 i suck at any pvp and fps game. im also terrible at math never ask me anything math related i will answer incorrectly. i currently play roblox, codm, blockblast, gacha life2 and pony town.
