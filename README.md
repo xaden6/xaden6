@@ -8,7 +8,7 @@ you can usually find me in trees or sitting with my acquaintances and friends. <
 
 i suck at any pvp and fps game. im also terrible at math never ask me anything math related i will answer incorrectly. i currently play roblox, codm, blockblast, and pony town. Dont call me a poser, unless youre gonna buy me the games im not wasting any money on em. I also dont have Steam.
 
-Also i actually have a time limit but my dad forgot to turn it back on lalalala
+Fun fact i actually have a time limit but my dad forgot to turn it back on lalalala
 
 <img width="170" height="100" alt="image" src="https://github.com/user-attachments/assets/eb98185c-85b6-4ec9-9f54-afd1ff0b4cae" />
 
