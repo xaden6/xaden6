@@ -6,7 +6,7 @@ you can call me xaden, real name's aiden. birthdays 16/11 (not the american form
 you can usually find me in trees or sitting with my acquaintances and friends. <img width="90" height="90" alt="image" src="https://github.com/user-attachments/assets/fee2b969-524f-4682-b1f5-02841e986445" />
 
 
-i suck at any pvp and fps game. im also terrible at math never ask me anything math related i will answer incorrectly. i currently play roblox, codm, blockblast, and pony town. Dont call me a poser, unless youre gonna buy me the games im not wasting any money on em. I also dont have Steam.
+i suck at any pvp and fps game. im also terrible at math never ask me anything math related i will answer incorrectly. i currently play roblox, codm, blockblast, and pony town.
 
 Fun fact i actually have a time limit but my dad forgot to turn it back on lalalala
 
