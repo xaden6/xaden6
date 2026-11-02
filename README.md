@@ -12,7 +12,7 @@ Fun fact i actually have a time limit but my dad forgot to turn it back on lalal
 
 <img width="170" height="100" alt="image" src="https://github.com/user-attachments/assets/eb98185c-85b6-4ec9-9f54-afd1ff0b4cae" />
 
-i like a lot of things. i also like to read and my favourite colour is blue.
+i like a lot of things. i also like to read and my favourite colour is blue. I like touhou and ships(not like [a]x[b], i mean actual ships okay?) as well.
 
 <img width="100" alt="gif" src="https://64.media.tumblr.com/d3e9da4bf128a30c83f73dceaabd54e6/3c74d06b377fdc9b-9b/s250x400/a7e1fcb1424dcf884adb3ec3f21fec51211ee471.gifv" /> <img width="90" alt="gif" src="https://64.media.tumblr.com/30087bd40a3d745f508aedb8e8752b89/2eaf92485d9e8f59-76/s250x400/b2ba9f58ed20d6dc6be54d8ff2e063ae5b00b56b.pnj" /> <img width="100" alt="gif" src="https://64.media.tumblr.com/c15125a15206c035e4f1bf183dd0c6b5/6a47b814fd12d857-3a/s100x200/0713c54f72d756f533c10d317cf9cf227ba6083f.gifv" /> <img width="100" alt="gif" src="https://64.media.tumblr.com/d62ad494564e58012a57fa89ca294b47/b7660ac3839840f2-37/s100x200/0a64ce5365f8eccf44a292a5a68a8f669bda81ee.gifv" />
 
